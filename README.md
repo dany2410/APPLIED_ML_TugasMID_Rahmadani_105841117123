@@ -1,0 +1,1 @@
+# APPLIED_ML_TugasMID_Rahmadani_105841117123
